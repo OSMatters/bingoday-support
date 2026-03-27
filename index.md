@@ -2,7 +2,7 @@
 
 Need help with BingoDay?
 
-Contact: your-email@example.com
+Contact: Evalong9820@gmail.com
 
 ## FAQ
 
